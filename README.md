@@ -1,6 +1,6 @@
 # app-dev
-## My first repository
-# My favorite Series/Movie
+# My first repository
+## My favorite Series/Movie
 
 [Mushoku Tensei: Jobless Reincarnation](https://mushokutensei.fandom.com/wiki/Mushoku_Tensei_Wiki)
 ---
