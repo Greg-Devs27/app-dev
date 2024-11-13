@@ -18,6 +18,14 @@ The stunning execution of these techniques creates a very film-like series, whic
 The use of colors and lighting in most parts of the series are quite moody, but they showcase magic breathtakingly.
 Whenever a magic spell is cast, the colors burst forth, albeit not sharply. They maintain a moody pastel tone, but they shine and evoke excitement in the viewer.
 
+In Mushoku Tensei, there is a specific group of people who are deemed the strongest in the world. Those people are known as the Seven Great Powers
+1. Laplace
+2. Orsted
+3. Badigadi
+4. Randolph Marianne
+5. Gal Farion
+6. Kalman III
+
 The essence of Mushoku Tensei centers on love, primarily focusing on the characters discovering their sense of belonging within a family.
 It delves deep into the intricate dynamics of familial relationships, encompassing themes of resilience and personal development.
 
